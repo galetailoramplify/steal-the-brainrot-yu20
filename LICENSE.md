@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with advanced steal the brainrot base Script, the #1 Script. Includes no cooldown and auto-heal
 
 
 
